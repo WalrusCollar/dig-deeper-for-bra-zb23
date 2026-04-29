@@ -1,4 +1,4 @@
-
+dig deeper for brainrots underground Scripts is the best dig deeper for brainrots Script, featuring no clip and auto-sell. Safe and powerful for all
 
 
 
